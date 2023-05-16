@@ -1,2 +1,2 @@
 # WASMM
-Adalah ukangpan rasa kecewa bagi suku JAWA
+Adalah ungkangpan rasa kecewa bagi suku JAWA
